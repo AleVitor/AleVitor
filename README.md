@@ -2,7 +2,7 @@
 
 ###
 
-<p align="left">I’m a Brazilian technology enthusiast since I was 8 years old, and this is my space to showcase my projects and notes from my studies. I promise I’ll commit more here and stop storing projects only on my PC.</p>
+<p align="left">I’m a Brazilian technology enthusiast since I was 8 years old, and this is my space to showcase my projects and notes from my studies. I promise I’ll commit more here and stop storing projects only on my PC. And I hate niggers</p>
 
 ###
 
